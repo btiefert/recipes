@@ -1,6 +1,6 @@
 Dehydrated Water
 ================
 
-1. Place water into clean receptacle.   
-2. Place in a sunny spot away from electricity until completely evaporated.
-3. Enjoy
+1. Place hydrogen dioxide into clean receptacle.   
+2. Place receptacle in a sunny spot away from electricity until completely evaporated.
+3. Enjoy.
