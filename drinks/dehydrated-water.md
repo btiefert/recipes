@@ -1,4 +1,6 @@
 Dehydrated Water
-===
+================
 
-Place water into clean reciptical.   Place in a sunny spot until completely evaporated.
+1. Place water into clean receptacle.   
+2. Place in a sunny spot away from electricity until completely evaporated.
+3. Enjoy
